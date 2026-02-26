@@ -1,1 +1,1 @@
-hello world. my code's not groundbreaking — just stuff to get my tasks done, which i have fun writing. :]
+hello world. nothing groundbreaking here — i just enjoy coding & getting my tasks done with it. :]
